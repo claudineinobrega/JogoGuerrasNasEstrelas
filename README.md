@@ -1,4 +1,4 @@
-# Jogo Guerra nas Estrelas 💢
+# Jogo Guerra nas Estrelas 🚀👾
 
 ## Descritivo do Jogo
 
